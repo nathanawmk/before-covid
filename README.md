@@ -18,9 +18,11 @@ Year 2020 started out like any other year
 But ended like no other
 
 
-From shipwreck careers, work from home that stretches, 
+From shipwreck careers, work from home that stretches beyond the horizon, 
 
-Everything now seems to before covid, after covid. 
+before covid, this
+
+after covid, that 
 
 
 
