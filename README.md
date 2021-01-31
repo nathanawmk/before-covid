@@ -8,9 +8,20 @@ Year 2020 started out like any other year
 But ended like no other
 
 
-Everyone says 2020 has been unprecedented
+They say 2020 has been unprecedented
 
-But to say 2020 has been unprecedented is itself an understatement
+But to say that is an understatement
+
+
+New lockdowns and clusters
+
+guessing the daily covid count deaths
+
+watching empty shelves at the supermarket
+
+observing mask facing and social distancing
+
+was but the norm. 
 
 
 Year 2020 started out like any other year
@@ -18,13 +29,21 @@ Year 2020 started out like any other year
 But ended like no other
 
 
-From shipwreck careers, work from home that stretches beyond the horizon, 
+Days became months
 
-before covid, this
-
-after covid, that 
+months became year
 
 
+From covid upended careers
+
+to work from home that stretches beyond the horizon
+
+No one was left unscathed -- no one
+
+
+Year 2020 started out like any other year
+
+But ended like no other
 
 
 Nathan Aw, 33, Singapore
